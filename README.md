@@ -9,7 +9,7 @@ If You Install One And It Doesnâ€™t Work Please Contact Me At The Email belowðŸ‘
 All the links provided I Have Spent Time Downloading And Testing Them To Make Sure They Fully work 
 Smoothly And How They Should.
 
-*With help From StayBizzy The Files Are Easy to Download No Wasting Time With Servays
+*With help From StayBizzy The Files Are Easy to Download No Wasting Time With Survey
 And Fake Download Links They Are As Simple As Couple Of Clicks To Install And Play*
 
 **If You Have Any Requests Or Come To Any Issues Please Mail Me**
